@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am an 11th-grade student at a vocational school majoring in Software and Game Development with a concentration in Software Engineering.
+Anactive acc...
 
 
 ## 🌐 Socials:
